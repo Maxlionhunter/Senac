@@ -1,0 +1,1 @@
+Atenção a loja(Zuno) está em constante alteração, caso tenha algum comentário/ideia de como melhorar nossa loja, converse com o criador.
